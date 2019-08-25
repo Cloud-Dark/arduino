@@ -3,8 +3,8 @@
 
 
 > Sepecial Thanks to, 
-> My Dad for support me  & 
-> Universitas NU Surabaya
+> My Dad for support me,  
+> Universitas NU Surabaya,
 > and you
 
 
